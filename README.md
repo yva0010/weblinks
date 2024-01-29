@@ -9,7 +9,7 @@
 ### [Shorts Collection](https://do0od.com/f/j3g2m5x2um)
 ---
 
-### [Omegle Stuff](https://do0od.com/f/2s6osub0zi)
+### [Omegle](https://do0od.com/f/2s6osub0zi)
 
 ### [Onlyfans](https://do0od.com/f/qrzwebeute)
 
