@@ -4,7 +4,7 @@
 ### [Jack and Jill Collection](https://do0od.com/f/v84k5p9swd)
 
 ---
-### [Blacked](https://d0000d.com/f/ezd07sp7ke)
+### Blacked : [One](https://d0000d.com/f/ezd07sp7ke), [Two](https://d0000d.com/f/2o6xrjfd2z) 
 ### [Blacked Raw](https://d0000d.com/f/9xq06ysq78)
 
 ---
@@ -13,7 +13,7 @@
 ### [Shorts Collection](https://do0od.com/f/j3g2m5x2um)
 ---
 
-### Omegle : [One](https://do0od.com/f/2s6osub0zi) [Two](https://do0od.com/f/lkus45qrnh)
+### Omegle : [One](https://do0od.com/f/2s6osub0zi), [Two](https://do0od.com/f/lkus45qrnh)
 
 ### [Onlyfans](https://do0od.com/f/qrzwebeute)
 
