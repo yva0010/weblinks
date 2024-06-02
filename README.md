@@ -19,4 +19,4 @@
 
 ### Chaturbate: [One](https://do0od.com/f/7zmjx5dfqs), [Two](https://d000d.com/f/7lbbabidof)
 
-[LINK](https://github.com/yva0010/nsfw_of/tree/main)
+[To Page](https://github.com/yva0010/nsfw_of/tree/main)
