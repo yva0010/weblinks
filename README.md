@@ -17,6 +17,6 @@
 
 ### OnlyFans : [One](https://do0od.com/f/qrzwebeute), [Two](https://d000d.com/f/6v3m62yeox)
 
-### Chaturbate: [One](https://do0od.com/f/7zmjx5dfqs), [Two](https://d000d.com/f/7lbbabidof)
+### Chaturbate: [One](https://do0od.com/f/7zmjx5dfqs)
 
 [To Page](https://github.com/yva0010/nsfw_of/tree/main)
